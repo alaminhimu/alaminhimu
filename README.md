@@ -9,15 +9,15 @@
 
 -  A Proud **BANGLADESHI <img src="https://github.com/alaminhimu/alaminhimu/issues/1" width="20" height="15" valign="middle">**
 
--  I’m Working on **MySelf.**
+-  Currently Working on **Something Surprising**
 
 -  I’m currently learning **Cyber Security - Research Analytics**
 
--  Ask me about **AI/ML - Graphic Designing - Web Fundamentals.**
+-  Ask me about **AI/ML - Graphic Designing - Web Fundamentals**
 
 -  To reach me **alaminhimu2004@gmail.com**
 
--  Fun fact is **Everyone Thinks I am Funny.**
+-  Fun fact is **Everyone Thinks I am Funny But...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
