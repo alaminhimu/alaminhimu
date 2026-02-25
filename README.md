@@ -13,7 +13,7 @@
 
 -  I’m currently learning **Cyber Security - Research Analytics**
 
--  Ask me about **AI/ML - Graphic Designing - Web Development Fundamentals.**
+-  Ask me about **AI/ML - Graphic Designing - Web Fundamentals.**
 
 -  To reach me **alaminhimu2004@gmail.com**
 
